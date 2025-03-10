@@ -23,11 +23,19 @@
 
 [截止：暂无] [管理学院](https://mp.weixin.qq.com/s/BcQ8gPRFejV7MOMtml_BUQ)
 
+[截止：9月] [管理学院-博思营（第三轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
+
+[截止：7.5] [管理学院-博思营（第二轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
+
+[截止：4.24] [管理学院-博思营（第一轮）](https://mp.weixin.qq.com/s/cTf-12BMinxj3Utl6ob6SA)
+
 ## 香港中文大学（深圳）
+
+[截止：4.14] [经济学硕士项目](https://mp.weixin.qq.com/s/TKmn-oEB3cS6Td_1fGQxXw)
 
 [截止：4.14] [经管学院-深圳高等金融研究院](https://mp.weixin.qq.com/s/ga46gUxvE5Q4gsUPYH02NA)
 
 ## 香港大学
 
-[截止：2.24] [经管学院](https://mp.weixin.qq.com/s/MYtVPm8noMh0Ku4AGZ5I_w)
+~~[截止：2.24] [经管学院](https://mp.weixin.qq.com/s/MYtVPm8noMh0Ku4AGZ5I_w)~~
 
